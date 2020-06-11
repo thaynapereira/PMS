@@ -3,4 +3,6 @@
 Autores:
 * Thayná Pereira
 * Joana Figueiredo
-* Hugo Parreiraç
+* Hugo Parreiral
+
+https://coimbratrip.wixsite.com/meusite
